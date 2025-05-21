@@ -1,2 +1,2 @@
-# Master-of-Western-Literature
+# Master-of-Western-Literature-2223
 Thank you for visiting this repository. Here you can find a variety of projects, papers, and presentations I produced for the Master's of Western Literature at KU Leuven (2022-2023). If you have any questions or want to connect further, feel free to reach out to me on my LinkedIn page. Thanks!
