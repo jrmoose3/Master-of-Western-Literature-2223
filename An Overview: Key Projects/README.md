@@ -1,4 +1,4 @@
-Coursework for the Master's of Western Literature was often a mixture of written tests, weekly assignments, and research papers. The later of these are available for view in the overview.
+Coursework for the Master's of Western Literature was often a mixture of written tests, weekly assignments, and research papers. The later of these are available for view in this Overview folder.
 <br>
 <br>
 1. Short Essays: A Series of 1000 word essays written for the Western Texts and Contexts course. <br>
