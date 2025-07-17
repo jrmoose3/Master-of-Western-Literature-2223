@@ -10,3 +10,4 @@ Coursework for the Master's of Western Literature was often a mixture of written
 <br>
 <br>
 For a deeper understanding of the work I produced during this program, please see the individual folders below.
+<br>
